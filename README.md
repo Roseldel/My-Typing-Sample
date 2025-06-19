@@ -1,2 +1,1 @@
-# My-Typing-Sample
-This is my Typing and content Writting portfolio
+# Welcome to My Portfolio😀✨️
